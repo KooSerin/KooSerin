@@ -1,3 +1,3 @@
 ## Hi there 👋
 
-I'm livin' South korea, and Idk eng and, also codin'
+I'm livin' South Korea, and Idk Eng and, also Codin'
